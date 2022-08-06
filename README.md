@@ -1,2 +1,2 @@
-# tarvijeelm.github.io
-test test test
+# جایزهٔ ترویج علم
+قوانین جایزهٔ ترویج به شرح می‌باشد
